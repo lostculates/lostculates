@@ -7,5 +7,5 @@ i am lostculates. i am a discord bot developer for over a year now.
 i only know java because i suck lmao.
 thanks for sticking around. bye!
 
-insta - lostculates
+insta - lostculates | 
 discord - https://discord.gg/BtG5387TAn
